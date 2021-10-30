@@ -1,0 +1,1 @@
+Hi, I’m @superKazi. Code for some of my projects live here. I like design and frontend web development so that’s what I’ve been doing in various media organizations since I graduated with my MA in journalism in 2016.
